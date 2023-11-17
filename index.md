@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: skz
 ---
-
+stray kids is better than school
